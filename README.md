@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sorry
+- 👀 I’m interested in cryptocurrency and NFT's.
+- 🌱 I’m currently learning blockchain development.
+- 💞️ I’m looking to collaborate on anything blockchain, NFT's, or web development.
+- 📫 How to reach me: Discord Asynct#4168
